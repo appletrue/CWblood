@@ -5,7 +5,7 @@
 Participated in the cognitive writing course, <br>
 learning 879 cards, <br>
 watching 59 videos, <br>
-learning for more than 1758 minutes, <br>
+learning for more than 1758 minutes, (maybe much more & github & story books)<br>
 submitted 14 exercises, <br>
 completed the life alarm clock -- gene chip early blood screening for cancer business plan.
 
